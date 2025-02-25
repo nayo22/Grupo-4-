@@ -1,0 +1,2 @@
+Todo comenzó con un simple vegetal. Algo inofensivo, común en cualquier cocina, un alimento que nadie sospecharía que podría cambiar el destino del mundo. Pero un día, sin previo aviso, las zanahorias dejaron de ser solo zanahorias. Se convirtieron en explosivos letales, sembrando el caos en cada rincón del planeta. Lo que antes era un ingrediente para una ensalada o un platillo saludable, ahora era un arma de destrucción. Y como si fuera una epidemia, el fenómeno se extendió a otros vegetales. La comida dejó de ser comida y la guerra encontró una nueva forma de existir.
+
